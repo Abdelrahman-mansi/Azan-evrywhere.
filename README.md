@@ -1,1 +1,1 @@
-# Azan-evrywhere.
+# Azan-evreywhere.
